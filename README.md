@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Javascript
 - 💞️ I’m looking to collaborate on Make Way for Mushy
 - 📫 How to reach me: https://www.youtube.com/channel/UCVIXyEYE1Xy5LX7TcR3OHPA
-- 😄 Pronouns: No.
+- 😄 Pronouns: idfc bruh call me whatever the hell you want
 - ⚡ Fun fact: The onepiece is REAL 📢📢📢📢
 
 <!---
